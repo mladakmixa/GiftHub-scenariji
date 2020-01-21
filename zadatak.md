@@ -1,3 +1,3 @@
 # GiftHub-scenariji
-DODATNI BODOVI GODAMIT!!!!!
+DODATNI BODOVI!!!!! /Primjer grananja
 Studiram na Fakultetu informatike u Puli
